@@ -23,6 +23,6 @@ It uses Google dorks ex ("Site:"anonfiles.com" Your Search Query")
 [Patreon](https://www.patreon.com/lucifersangel)
 
 
-*1NzYXCsSvgPpxJvM9DR8K5j5WPHu1Bii2E*
+*0x547560603Bc159d3C0D20Ce0c2daaF109Eeb09FD*
 
 
